@@ -1,2 +1,1 @@
-# Info
-Random info drops from me.
+Check back for some cool things coming soon.
